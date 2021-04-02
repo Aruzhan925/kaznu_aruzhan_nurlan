@@ -1,0 +1,1 @@
+# kaznu_aruzhan_nurlan
